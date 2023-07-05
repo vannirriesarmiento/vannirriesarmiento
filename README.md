@@ -1,4 +1,4 @@
-## Hey nerds ✌️
+### Hey nerds!
 The name's Vann, and I like all things pink and pretty. 
 \
 \
